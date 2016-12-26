@@ -5,8 +5,7 @@
 
 ******
 
-- 百度网盘下载地址，请[点击这里](https://pan.baidu.com/s/1pLjivu7
-).
+- 百度网盘下载地址，请[点击这里](https://pan.baidu.com/s/1hs2ZBlq)。
 
 ******
 
